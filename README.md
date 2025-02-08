@@ -12,7 +12,7 @@ Being straight forward here, basic dni list INCLUDING- Dating sim fans (ybf, joh
 ★。＼｜／。★
 
 ╔══《what i like + interact please》══╗
-Mouthwashing,OSC,Tallyhall,Mitski,SVTFOE,Vocaloid,Omori,PJSK,CRK
+Mouthwashing,OSC,Tallyhall,Mitski,SVTFOE,Vocaloid,Omori,PJSK,and CRK. 
 Selfshippers (i heart yall please int with me NOW!!) Christians (PLEASE INT WITH ME WE CAN TALK ABOUT JESUS 24/7❤) all of the fandoms above (HEH......PLSSPLES)
 
 ╚═══════. "hello? are you okay? ".╝
