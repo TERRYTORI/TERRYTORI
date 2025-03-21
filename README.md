@@ -4,7 +4,7 @@
 ╔══                           ══╗ 
 ╰┈➤ ❝ [introduction] ❞
 
-.・゜-: ✧ :-　　hii, im a silly little Black sapphire kisser named sammy. i draw, sculpt and make stuff cuz idk its fun ig,i use typing quirks only for people im comfortable with, currently not using them for the sake of dyslexic people,im a minor so watch out for that, I'm a Christian :3 (no im not homophobic???? i dont support lgbtq but the ppl in the community r awesome!) im also kinda stupid so watch out 4 that too.  
+.・゜-: ✧ :-　　hii, im a silly little Black sapphire kisser named c0zm1c. i draw, sculpt and make stuff cuz idk its fun ig,i use typing quirks only for people im comfortable with, currently not using them for the sake of dyslexic people,im a minor so watch out for that, I'm a Christian :3 (no im not homophobic???? i dont support lgbtq but the ppl in the community r awesome!) im also kinda stupid so watch out 4 that too.  
 _________ ׂׂૢ་༘࿐
 
 ┊ ⚠️ DO NOT INTERACT! ⚠️ ┊ 
